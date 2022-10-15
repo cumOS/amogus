@@ -1,2 +1,1 @@
-# amogus
-Sugoma
+Amogus sus sugomA
